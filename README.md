@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CryptoKongsClub
-- 👀 I’m interested in NFTs
+- 👀 I’m interested in sharing fun NFTs
 - 🌱 I’m currently learning Discord, Opensea, & hic et nunc (H=N)
-- 💞️ I’m looking to collaborate on promotion like Rarity.tools
+- 💞️ I’m looking to collaborate with Vee Friends and Rarity.tools
 - 📫 You can reach me on Twitter @CryptoKongsClub
 
 <!---
